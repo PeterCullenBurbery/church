@@ -1,2 +1,2 @@
 # church
-church, attendance, Redemption church--[redemptionwv.org](https://redemptionwv.org/)
+church, attendance, Redemption church--[redemptionwv.com](https://redemptionwv.com/)
